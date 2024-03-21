@@ -1,0 +1,1 @@
+# Peta-Populasi-Ternak-Besar-di-NTT-Tahun-2022
